@@ -1,1 +1,1 @@
-# merve-ba-i-ek-midterm
+# merve-bagicicek-midterm
